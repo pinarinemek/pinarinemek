@@ -1,6 +1,7 @@
-## I'm coding 🧚‍♀️
+## I'm coding 🫡
 
-![köpüss](https://user-images.githubusercontent.com/77541682/225643013-fea1a288-4d52-4940-90cf-c9fb05f3404f.jpeg)
+![kopusss](https://user-images.githubusercontent.com/77541682/225645570-7345c3f3-8885-482b-b88e-c748cd39c100.png)
+
 
 
 
